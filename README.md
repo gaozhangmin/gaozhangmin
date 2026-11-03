@@ -1,4 +1,4 @@
-# Hi there, I'm Gao 👋
+# Hi there, I'm Zhangao 👋
 
 ### 🚀 Indie Developer | Creator of BoxPlayer | Building Better Media Experiences
 
